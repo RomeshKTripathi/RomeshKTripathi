@@ -1,3 +1,4 @@
+## Romesh Kumar Tripathi
 - 👋 Hi, I’m @RomeshKTripathi
 - 👀 I’m interested in Learning diffrent subject but mostly Programming concepts, DS and Algorithms 
 - 📫 How to reach me Email:romeshktripathi@gmail.com  Linkdin:https://www.linkedin.com/in/romesh-k-tripathi-53518a1b8
